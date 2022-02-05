@@ -1,1 +1,0 @@
-# idanielsh.github.io
